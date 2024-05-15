@@ -1,4 +1,4 @@
-👋 Hi, I’m Katerina Grigoreva.
+👋 Hi, I’m Katerina. 
 
 I’m a Data Analyst based in Toronto, Canada, currently working in the insurance/legal industry.
 
